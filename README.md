@@ -1,5 +1,5 @@
 # I'm Novaust
-## Chase the star...
+## /ᐠ｡ꞈ｡ᐟ\
 
 <!---
 Novaust/Novaust is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
